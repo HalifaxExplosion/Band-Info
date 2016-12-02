@@ -1,4 +1,7 @@
-# Track Names
+# Halfax Explosion
+> If ever have metal band, this is the plan.
+
+### Track Names
 
 1. He Who is Unwilling in The Service of The World
 1. Horror Beasts Ravaging a World Consumed by Fire
